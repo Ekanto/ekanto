@@ -8,7 +8,7 @@ Competitive programmer | Learner</h3>
 
 - 📫 How to reach me **umarekanto@gmail.com**
 
-- ⚡ Fun fact **Earth is not flat**
+- ⚡ Fun fact **You are reading this with your eye opened**
 
 ### Connect with me:
 
